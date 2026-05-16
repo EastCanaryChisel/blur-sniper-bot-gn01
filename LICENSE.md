@@ -1,4 +1,4 @@
-# 
+# top blur sniper bot | private-RPC-nodes + multi-chain-support offers the most advanced blur sniper bot, with private-RPC-nodes and multi-chain-support. Ideal for professional NFT
 
 
 
